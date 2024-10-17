@@ -4,7 +4,6 @@
 - 👯 I’m looking to collaborate on: guess
 - 📫 How to reach me: 
 - 😄 Pronouns: Bullii, Bulli, Davi
-- ⚡ Fun fact: Dynamite of Taio Cruz is better than BTS' one.
 -->
 
 <!--
@@ -17,5 +16,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on: guess
 - 📫 How to reach me: 
 - 😄 Pronouns: Bullii, Bulli, Davi
-- ⚡ Fun fact: Dynamite of Taio Cruz is better than BTS' one.
 -->
